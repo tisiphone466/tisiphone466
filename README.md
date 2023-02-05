@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tisiphone466 
-- 👀 I'm interested in mathematics, data, analysis, puzzles, art and a lot of different things 
-- 🌱 Studying QA testing 
+- 👀 I'm interested in art, mathematics, analysis, puzzles, and a lot of different things 
+- 🌱 Studying graphic design
 - 📫 You can send me a message to tisiphone466@gmail.com
 
 <!---
